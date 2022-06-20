@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on my statistical programming skills
 - 🌱 I’m currently learning about regression
 - 👯 I’m looking to collaborate on data science projects
-- 🤔 I’m looking for help with math behind machine learning
+- 🤔 I’m looking for help with Machine Learning math
 - 💬 Ask me about anything
 - 📫 How to reach me: alghaf.ahmd@gmail.com
 - 😄 Pronouns: He/him
