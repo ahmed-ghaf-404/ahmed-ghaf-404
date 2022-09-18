@@ -7,4 +7,4 @@
 - 💬 Feel free to reach out or ask 
 - 📫 How to reach me: alghaf.ahmd@gmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I picked up chess recently, and man it has been a journy!
+- ⚡ Fun fact: I picked up chess in April 2021, and it has been a wild journey since!
