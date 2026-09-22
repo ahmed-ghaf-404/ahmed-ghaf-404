@@ -1,4 +1,4 @@
-## Ahmed Alghafri
+## Ahmed H. K. Al Ghafri
 -  Email: alghaf.ahmd@gmail.com
 
 ## Project Sites:
